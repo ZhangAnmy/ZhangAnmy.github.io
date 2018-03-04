@@ -1,3 +1,3 @@
 ## Welcome to ZhangAnmy GitHub Pages
 
-Have a nice day ^_^^_^
+Have a nice day!
